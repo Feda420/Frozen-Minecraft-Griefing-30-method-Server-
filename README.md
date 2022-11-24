@@ -1,6 +1,6 @@
 # Frozen-Minecraft-Griffing-30-method-Server-
                                                                             
-																			MINECRAFT SERVER GRIEFING/HACKING By ItsJokerz_ / FrozenCode
+																			MINECRAFT SERVER GRIEFING/HACKING 
 																			
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
